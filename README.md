@@ -1,0 +1,3 @@
+RenaCoin (RNC)
+
+^^ :3
